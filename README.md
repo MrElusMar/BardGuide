@@ -1,1 +1,0 @@
-# BardGuide- lorem ipsem
